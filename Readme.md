@@ -20,7 +20,7 @@ We only collect data that is necessary for providing the service, such as your T
 We may update these terms occasionally. Continued use of the app after updates constitutes acceptance of the new terms.
 
 6. Contact
-If you have questions about these Terms, contact us at: support@7rimmer.app
+If you have questions about these Terms, contact us at: 7rimmer@yahoo.com
 
 ⸻
 
@@ -48,4 +48,4 @@ We use standard encryption and secure communication protocols to protect your da
 We may update this policy. When we do, we’ll revise the “Last updated” date above. Continued use of the app means you accept the changes.
 
 7. Contact Us
-Questions? Email us at: privacy@7rimmer.app
+Questions? Email us at: 7rimmer.com
