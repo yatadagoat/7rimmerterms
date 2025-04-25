@@ -48,4 +48,4 @@ We use standard encryption and secure communication protocols to protect your da
 We may update this policy. When we do, we’ll revise the “Last updated” date above. Continued use of the app means you accept the changes.
 
 7. Contact Us
-Questions? Email us at: 7rimmer.com
+Questions? Email us at: 7rimmer@yahoo.com
